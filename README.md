@@ -30,7 +30,15 @@ i'm currently in 12th Standard and maybe i'll pursue BTech lol (definitely in CS
 
 #
 
-📬 <a href="sounavabhowmickofficial@googlemail.com">admin@googlemail.com</a>
+Connect with me:
+
+<a href="sounavabhowmickofficial@googlemail.com">E-Mail</a>
+
+<a href="wa.me/919339385553">WhatsApp</a>
+
+<a href="https://instagram.com/sounava777">Instagram</a>
+
+<a href="https://x.com/TrueClasher4">X</a>
 
 #
 
