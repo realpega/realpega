@@ -26,7 +26,7 @@ Tertiary Interests: Content Creation & Releasing Songs
 
 #
 
-i'm currently in 12th Standard and maybe i'll pursue BTech lol (definitely in CS)
+i'm currently in 12th Standard and maybe i'll pursue BCA lol
 
 #
 
@@ -34,7 +34,7 @@ Connect with me:
 
 <a href="mailto:sounavabhowmickofficial@googlemail.com">E-Mail</a>
 
-<a href="wa.me/919339385553">WhatsApp</a>
+<a href="https://wa.me/919339385553">WhatsApp</a>
 
 <a href="https://instagram.com/sounava777">Instagram</a>
 
