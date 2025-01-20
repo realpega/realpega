@@ -10,9 +10,9 @@ Sounava Bhowmick
 
 #
 
-Primary Interests: Web Development, Android Development & Game Development
+Primary Interests: Web Development, Android Development, Game Development & Blockchain Developement
 
-Secondary Interests: Hacking & Cyber Security
+Secondary Interests: Cybersecurity & Hacking
 
 Tertiary Interests: Content Creation & Releasing Songs
 
@@ -42,7 +42,7 @@ Connect with me:
 
 #
 
-🎮 Clash of Clans, Clash Royale, Brawl Stars, Squad Busters, PUBG, Free Fire, Minecraft, Valorant, Indus, Undawn, GTA
+🎮 Clash of Clans, Clash Royale, Brawl Stars, Squad Busters, PUBG, Free Fire, Minecraft, Valorant, Undawn, GTA
 
 #
 
