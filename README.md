@@ -40,7 +40,7 @@ Connect with me:
 
 <a href="https://x.com/TrueClasher4">X</a>
 
-<a href="https://t.me/TrueClasher4">Telegram<a/a>
+<a href="https://t.me/TrueClasher4">Telegram</a>
 
 <a href="https://www.reddit.com/user/sounava777">Reddit</a>
 
