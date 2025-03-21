@@ -2,7 +2,7 @@ Sounava Bhowmick
 
 17, Male
 
-🇮🇳 India
+🌍 Earth
 
 #
 
@@ -18,7 +18,7 @@ Tertiary Interests: Content Creation & Releasing Songs
 
 #
 
-🗣️ Knowledge: HTML, CSS, JS, Java, C# & ReactJS
+🗣️ Knowledge: HTML, CSS, JS, Java, C# & ReactJS, NodeJS
 
 #
 
@@ -26,17 +26,9 @@ Tertiary Interests: Content Creation & Releasing Songs
 
 #
 
-i'm currently in 12th Standard and maybe i'll pursue BCA lol
-
-#
-
 Connect with me:
 
 <a href="mailto:sounavabhowmickofficial@googlemail.com">E-Mail</a>
-
-<a href="https://wa.me/919339385553">WhatsApp</a>
-
-<a href="https://instagram.com/sounava777">Instagram</a>
 
 <a href="https://x.com/TrueClasher4">X</a>
 
